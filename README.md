@@ -1,4 +1,4 @@
-# back number – Takaneno Hanakosan
+# back number – 高嶺の花子さん
 
 > **歌詞登録ステータス：同期歌詞あり**
 
